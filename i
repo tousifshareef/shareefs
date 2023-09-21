@@ -1,4 +1,0 @@
-ffgghx
-ghjk
-asdfghjkl
-poiuytr
